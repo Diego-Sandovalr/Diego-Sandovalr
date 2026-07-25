@@ -1,5 +1,5 @@
 ¡Hola! Soy Diego Sandoval 
- Ingeniero en Materiales (en formación) |  CAD, CFD & Data-Driven Materials Science
+ Ingeniero en Materiales (en formación) |  
 
  Sobre mí
 
